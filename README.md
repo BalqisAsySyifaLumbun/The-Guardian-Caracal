@@ -8,8 +8,11 @@ GameJam Mandiri 2025
 I have a confession to make:
 
 Fluffy, I don't think I belong in The Kingdom of The Creator.
+
 But.., I'm too scared to end up in The Hole of Endless Regrets.
+
 I've done a very horrible thing - and prayed every night and day for forgiveness,
+
 For a caracal still believes in The All Forgiving, despite the great sins it has commited. 
 
 
@@ -25,8 +28,11 @@ Will we ever meet again - as we were believers?
 Inilah pengakuanku:
 
 Fluffy, aku tak pantas berada di Kerajaan Sang Khalik.
+
 Tapi.., aku tak mampu bila harus berakhir di Lubang Penyesalan Abadi.
+
 Aku pendosa - ku berdoa sepanjang waktu agar dosa-dosaku diampuni,
+
 Karena karakal sepertiku percaya pada Sang Pengampun Dosa yang Besar.
 
 Apakah kau mau membantu doaku?
