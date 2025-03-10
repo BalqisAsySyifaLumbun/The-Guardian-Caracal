@@ -19,6 +19,7 @@ For a caracal still believes in The All Forgiving, despite the great sins it has
 Will you also pray for me?
 Will you help me?
 
+
 Will we ever meet again - as we were believers?
 
 # Game: "Karakal: Sumpah Sang Wira"
@@ -35,8 +36,10 @@ Aku pendosa - ku berdoa sepanjang waktu agar dosa-dosaku diampuni,
 
 Karena karakal sepertiku percaya pada Sang Pengampun Dosa yang Besar.
 
+
 Apakah kau mau membantu doaku?
 Apakah kau mau menuntunku?
+
 
 Dapatkah kita bertemu lagi - sebagaimana kita yang percaya, dulu?
 
